@@ -1,2 +1,2 @@
 # Vlinder
-My person arts
+My personal arts
